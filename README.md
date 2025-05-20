@@ -23,7 +23,7 @@
 ## 🌐 Contato
 
 📧 gabrielmlopes07@gmail.com  
-🔗 [LinkedIn](https://www.www.linkedin.com/in/gabrielmllopes)
+🔗 [LinkedIn](https://www.linkedin.com/in/gabrielmllopes)
 
 ---
 
